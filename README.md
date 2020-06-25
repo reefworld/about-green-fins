@@ -1,1 +1,7 @@
-# green-fins
+# about-green-fins
+
+Green Fins is a proven conservation management approach – spearheaded by The Reef-World Foundation in partnership with the UN Environment Programme – which leads to a measurable reduction in the negative environmental impacts associated with the marine tourism industry. The initiative aims to protect and conserve coral reefs through environmentally friendly guidelines that promote a sustainable diving and snorkelling tourism industry. It provides the only internationally recognised environmental standards for the diving and snorkelling industry and has a robust assessment system to measure compliance.
+
+Green Fins encourages and empowers members of the diving industry to act to reduce the pressures on coral reefs by offering dive and snorkel companies practical, low-cost alternatives to harmful practices - such as anchoring, fish feeding and chemical pollution – as well as providing strategic training, support and resources. By reducing the local direct and indirect pressures tourism puts on coral reefs, it helps make corals healthier and more resilient to other stresses such as the effects of climate change. Look for the Green Fins logo when booking your next dive trip.
+
+Please visit https://www.greenfins.net/ to learn more or follow the initiative on [Facebook](https://www.facebook.com/GreenFins/), [Instagram](https://www.instagram.com/green_fins/) and [Twitter](https://twitter.com/Green_Fins).
